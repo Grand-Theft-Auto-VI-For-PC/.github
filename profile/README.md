@@ -8,9 +8,9 @@ Grand theft auto 6 is a video game from the February of action-adventure games a
 
 
 
-## [➤ ►🌍📺📱👉Grand Theft Auto 6 ](https://tinyurl.com/3ut5wh9j)
+## [➤ ►👉Grand Theft Auto 6 ](https://tinyurl.com/ycx9cmnc)
 
 
-## [➤ ►🌍📺📱👉Grand Theft Auto 6  For PC](https://tinyurl.com/3ut5wh9j)
+## [➤ ►👉Grand Theft Auto 6  For PC](https://tinyurl.com/ycx9cmnc)
 
 
